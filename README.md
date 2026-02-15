@@ -5,7 +5,7 @@
 </h1>
 
 - From São Paulo, Brazil 🇧🇷
-- iOS developer Pl.🖥📱
+- iOS specialist developer 🖥📱
 - Bachelor of Information Systems 👨🏻‍🎓
 - I working in Santander bank ♨️
 
